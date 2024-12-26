@@ -1,6 +1,6 @@
 # 🚀 **Elias Andrade | Automação, Inteligência Artificial e Inovação em Logística** 📦
 
-[![GitHub](https://img.shields.io/badge/GitHub-100%2B_Projetos-%23A020F0)](https://github.com/chaos4455) 
+[![Projetos na área de logistica, compras, estoque e T.I desde 2010](https://img.shields.io/badge/GitHub-200%2B_Projetos-%23A020F0)](https://github.com/chaos4455) 
 [![Logística](https://img.shields.io/badge/Logística-Expert-%23A020F0)](https://github.com/chaos4455) 
 [![BI e ML](https://img.shields.io/badge/BI%20%26%20ML-Avançado-%23A020F0)](https://github.com/chaos4455)  
 [![Automação](https://img.shields.io/badge/Automação-100%25_Custom-%23A020F0)](https://github.com/chaos4455) 
