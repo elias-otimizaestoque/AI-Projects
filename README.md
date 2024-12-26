@@ -288,8 +288,32 @@ Com mais de 14 anos de experiência, me especializei em alinhar **tecnologia de 
 <img width="542" alt="Cursor_BKxSojsEXf" src="https://github.com/user-attachments/assets/4817cf09-a033-4aac-95f1-495469f1cccf" />
 <img width="264" alt="Cursor_SoJifU9zo3" src="https://github.com/user-attachments/assets/62c66159-2ec8-46a8-a4cc-5120d65b94d7" />
 
+![4_horarios_otimos_20241111_073530](https://github.com/user-attachments/assets/00377a6e-2c09-4c92-ab94-78d7b7c20533)
+![3_performance_categorias_20241111_073725](https://github.com/user-attachments/assets/c2115252-f804-40ee-9be3-2bbf5bd08fd3)
+![1_top_hashtags](https://github.com/user-attachments/assets/2e05383b-4d37-44bf-8108-35a1e59d70b3)
+![09_horarios_hashtags](https://github.com/user-attachments/assets/ce351d0c-ee59-41be-acf6-81b8dbef2d6f)
+![05_engajamento_hashtags](https://github.com/user-attachments/assets/2f0326fa-da8b-4294-931b-14be6332e57b)
+![10_dias_semana_hashtags](https://github.com/user-attachments/assets/0b093b17-e1d4-436d-80e6-925e79ebb101)
+![01_volume_hashtags](https://github.com/user-attachments/assets/f56e64ab-80fd-4f2c-8d1b-01e495dd443a)
+![top_100_hashtags_horizontal_20241111_081738_0da4adea](https://github.com/user-attachments/assets/1e1bb909-f45f-41de-b267-fc29691af5ab)
+![top_100_hashtags_vertical_20241111_081738_513d4ae5](https://github.com/user-attachments/assets/67555975-527c-410c-b255-c1cb071ef1f4)
+![cluster_3d_2_20241111_082532](https://github.com/user-attachments/assets/9c0b43c0-97d0-4a32-b750-cc31c205d46b)
+![cluster_3d_engajamento_alcance_tempo_20241111_085628](https://github.com/user-attachments/assets/44174ca5-bb66-4946-99a2-46de987d6862)
+![cluster_3d_frequencia_conversao_score_20241111_085628](https://github.com/user-attachments/assets/1b52e2dc-5206-4a92-a106-a0ea31349675)
+![cluster_3d_tempo_ativo_frequencia_score_20241111_085628](https://github.com/user-attachments/assets/65551717-4d35-445e-b991-430b0f8db857)
+![cluster_3d_contagem_conversao_tempo_20241111_085628](https://github.com/user-attachments/assets/c80a4b84-9831-405e-97c6-65c933b62aec)
+![cluster_3d_contagem_tempo_score_20241111_085628](https://github.com/user-attachments/assets/8a59f404-fc8b-463f-afef-9387479c2c6a)
 
+![analise_temporal_composta](https://github.com/user-attachments/assets/6d505750-9be3-4961-b5aa-df3936212053)
+![visualizacao_3d_angle_4](https://github.com/user-attachments/assets/88dbb5aa-4037-4723-8fd0-9ca652b5fca9)
+![newplot](https://github.com/user-attachments/assets/beeafee8-a674-4848-b3f8-50844375ab47)
+![cluster_visualizacao_2_c762132592](https://github.com/user-attachments/assets/349f2960-a6ce-4ecf-97c0-5ec58ba99ea0)
+![cluster_visualizacao_4_c762132592](https://github.com/user-attachments/assets/5bcc0b99-5d0b-4902-997e-78d5eb921dfa)
+![cluster_visualizacao_4_d0bc33733e](https://github.com/user-attachments/assets/844b1435-4d93-4262-a614-d5db637b51ee)
 
+![sublime_text_o4XDb1BghP](https://github.com/user-attachments/assets/12e4eda4-9da3-417b-a0ce-3e5461db6c33)
+![chrome_uFLHgvjctx](https://github.com/user-attachments/assets/eef0b0ec-c3b7-48b9-a2b7-1e52b9f9f547)
+![chrome_9nYf4jwEv1](https://github.com/user-attachments/assets/acca77ab-ad39-448b-95ba-cd40a0d26284)
 
 
 
