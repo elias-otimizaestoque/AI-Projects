@@ -71,10 +71,37 @@ Projetos de Ia e Bi e ML
 
 
 
+![screencapture-localhost-5173-2024-11-03-06_19_39](https://github.com/user-attachments/assets/191de4d1-5b4a-44ce-bb5d-fdb0ba1bcbe4)
+![Cursor_akFqKpet7p](https://github.com/user-attachments/assets/7c79a95c-75c9-4c14-9314-bec04e605409)
+![screencapture-localhost-5173-analytics-2024-11-03-10_02_26](https://github.com/user-attachments/assets/248dd704-45b6-4e29-9a87-0c413a6c36c4)
+![screencapture-localhost-5173-sales-2024-11-03-10_02_37](https://github.com/user-attachments/assets/ec7f61f9-3275-4668-acc6-0300f6ed0328)
+![chrome_wGBqh7RgAa](https://github.com/user-attachments/assets/2438c5e0-d74e-4c12-abc7-b1f43749917f)
+![chrome_etEu53ccTL](https://github.com/user-attachments/assets/14ca56e0-9e5f-486c-8c3a-3c996e7987a4)
+![chrome_7UBcdpT26v](https://github.com/user-attachments/assets/a9b91436-9534-4b18-85c0-abfccc09d201)
+![screencapture-localhost-5173-2024-11-03-11_33_12](https://github.com/user-attachments/assets/5c2d5689-9b11-4276-af87-53eb7f47268a)
+![chrome_GhqLReZAdm](https://github.com/user-attachments/assets/29ee4695-f587-427e-9aee-1d1ecbf76f45)
+![chrome_hNCCZqj5Ju](https://github.com/user-attachments/assets/e0ba77f9-0e8a-4480-89c2-1a9be8f45fb5)
+![chrome_5tLH1kJrlZ](https://github.com/user-attachments/assets/2884e05b-7903-41b5-8a78-46eb47a3a4c6)
+![chrome_RX9uDZ6dVF](https://github.com/user-attachments/assets/23091ec2-92ea-4b2e-9284-4607e8604df5)
+![screencapture-localhost-5173-dashboard-api-2024-11-05-02_25_45](https://github.com/user-attachments/assets/55deb62a-665f-4694-9c8c-2eb967891c0f)
 
 
-
-
+![screencapture-file-F-MEGASYNC-projeto-ml-consumo-combustivel-dashboard-html-2024-11-05-17_00_39](https://github.com/user-attachments/assets/7eb016ce-ea8a-47d3-b673-b0ea38b4dd2e)
+![screencapture-file-F-MEGASYNC-projeto-ml-consumo-combustivel-dashboard2-html-2024-11-05-17_21_45](https://github.com/user-attachments/assets/b93af51c-81a8-4e9e-98d4-139997ce617b)
+![chrome_FNoZ8L4Uhg](https://github.com/user-attachments/assets/542c5bc9-c12b-41c0-9570-d0f01f99b42e)
+![chrome_XOaPZX9ZGZ](https://github.com/user-attachments/assets/dff0b52b-3c6f-4bdb-a197-32c09b75e703)
+![chrome_l17KSCdCI1](https://github.com/user-attachments/assets/b777d2d4-dcd7-414d-9291-6b45cf7c6f9f)
+![screencapture-localhost-5173-analytics-2024-11-06-09_19_59](https://github.com/user-attachments/assets/447da00d-065a-429a-9863-02833201d540)
+![screencapture-localhost-5173-risk-2024-11-06-09_20_07](https://github.com/user-attachments/assets/6f86a1e9-9101-47db-a157-5cb9803c13c4)
+![screencapture-localhost-5173-analytics-2024-11-06-09_21_02](https://github.com/user-attachments/assets/145dca5d-2dff-4294-9dad-9c08528174f5)
+![screencapture-localhost-5173-insights-2024-11-06-10_48_12](https://github.com/user-attachments/assets/f37b075a-4b93-4be4-9872-8131897584e9)
+![chrome_vnGuA93ENx](https://github.com/user-attachments/assets/1531704a-7cb6-4eff-bf90-841217a71681)
+![chrome_EI9JueATqt](https://github.com/user-attachments/assets/8a6b0251-f8f4-432d-b9c1-9780814118ea)
+![chrome_Dk6TokESSz](https://github.com/user-attachments/assets/5d9bcdd5-9a38-4001-a959-bf28fcff3484)
+![chrome_uFVOOSBZb5](https://github.com/user-attachments/assets/3803e32f-b798-4d3d-957e-edea2caf9368)
+![chrome_PurXv74mrw](https://github.com/user-attachments/assets/3d5e2067-3b4b-40a9-958c-9cb9263f0a83)
+![chrome_GoXe2cxhPv](https://github.com/user-attachments/assets/770772a8-b0de-4582-b2c4-175986415716)
+![chrome_K6JohJaHqI](https://github.com/user-attachments/assets/09f6875e-581e-401b-a342-d6be521acd75)
 
 
 
