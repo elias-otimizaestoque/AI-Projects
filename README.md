@@ -249,11 +249,44 @@ Com mais de 14 anos de experiência, me especializei em alinhar **tecnologia de 
 
 ![chrome_K6JohJaHqI](https://github.com/user-attachments/assets/09f6875e-581e-401b-a342-d6be521acd75)
 
+![chrome_qDyBG8SXeF](https://github.com/user-attachments/assets/2eb3e634-2e34-4b28-9d3e-9227372f68a3)
+![chrome_sHlZMx6qz0](https://github.com/user-attachments/assets/20e01b8d-edaf-48b9-a42e-223d3e3086df)
+![python_TRbrJzZ6F7](https://github.com/user-attachments/assets/39b78634-3346-4789-9bb1-764253b8b844)
+![python_G69TFhncmm](https://github.com/user-attachments/assets/93c90e47-c87f-48c1-98fb-38ccffbc020c)
+![python_qB9rZmhl74](https://github.com/user-attachments/assets/f4596727-7a20-4d73-af3c-f56c3f55e866)
+![python_F12yruxDcs](https://github.com/user-attachments/assets/0b100ab7-a5c0-445c-a3cd-79397eb229dd)
+![python_bu9FcNCyV1](https://github.com/user-attachments/assets/fd4b18e3-ca0a-4baf-a015-1619c049e0ac)
+![python_evtDuKU88O](https://github.com/user-attachments/assets/91cdcb19-90f3-4f52-bc08-2b472ba4a095)
+![python_IOx0FpDSUc](https://github.com/user-attachments/assets/e7b82699-2bec-4853-9668-39a566e204b6)
+![python_xy4b3Lqu74](https://github.com/user-attachments/assets/8c254f59-263d-418d-aa18-bfb931dd16f0)
+![python_aUNOrS7u9V](https://github.com/user-attachments/assets/203abfa6-341b-4cc7-9b31-24c035f9a896)
+![python_2uzLTnKqGL](https://github.com/user-attachments/assets/116c81ce-5ded-4118-924f-c36319314d19)
+![python_WnB1mGnkH5](https://github.com/user-attachments/assets/c0ebd4b4-a817-4fa2-9527-eab8ae19b075)
+![python_doL1mP3arc](https://github.com/user-attachments/assets/e632e97c-fa73-4e8f-a550-0bbef3812034)
+![python_q6Zc8qC8kE](https://github.com/user-attachments/assets/1829b493-b7d4-46ee-9d3c-df74a942029b)
+![python_eMKOHG9gTI](https://github.com/user-attachments/assets/d15622d9-c969-4291-bb65-ba27846b13ca)
+![python_fsWMVZclZk](https://github.com/user-attachments/assets/ef91d9ba-5634-40ba-8797-52fccab3ddaf)
+![python_zR8Qb41xTp](https://github.com/user-attachments/assets/2fdd7315-19ef-4ced-a82c-8ba25c5a3a9f)
+![chrome_QX9JdmqQ2k](https://github.com/user-attachments/assets/b7f46733-67bc-4889-aa5a-956fe823b51c)
+![chrome_DUgYgg7md4](https://github.com/user-attachments/assets/a7d10a48-0e8f-4e6b-a17e-486ee2e7e64a)
 
 
+![screencapture-localhost-5173-social-score-2024-11-08-11_08_17 (2)](https://github.com/user-attachments/assets/ef895285-50a0-4599-bff6-601aa1f3e37c)
+![screencapture-localhost-5173-security-2024-11-08-11_09_15 (6)](https://github.com/user-attachments/assets/e064ce9e-a0c8-40f3-b145-3e20ab57d1f9)
+![screencapture-localhost-5173-research-lab-2024-11-08-11_09_38 (4)](https://github.com/user-attachments/assets/a2ff9879-2079-4b44-975c-649ba0d48f96)
 
+![temp_image](https://github.com/user-attachments/assets/b1602012-c64c-4112-8c3d-4c740eb148e6)
 
+![Cursor_w8609rdNJt](https://github.com/user-attachments/assets/b4b5ad46-bcd7-4f69-b854-9c80640e48e5)
+![Cursor_tGnvhhQSoI](https://github.com/user-attachments/assets/7146dc30-a5c5-4c28-a661-12d394b54c0d)
+![heatmap_clusters_20241109_204428_e8d56ca0](https://github.com/user-attachments/assets/3ee67b13-1fd6-4565-96e6-4d3932f5a72a)
+![python_h4upCXwov8](https://github.com/user-attachments/assets/644828f7-5c24-4fcb-92a7-cd9b0cb89aca)
 
+![mesh3d_perspective_f31ae098](https://github.com/user-attachments/assets/d059db90-2ba3-433d-abf3-2a96117cdd54)
+![tech_clusters_3d_20241109_213200_25da37e9](https://github.com/user-attachments/assets/2a47df23-f214-48b9-bc2b-368bdb15a59f)
+<img width="866" alt="Cursor_cwxKZkGgjS" src="https://github.com/user-attachments/assets/21199327-3250-414e-af81-f39f99be847b" />
+<img width="542" alt="Cursor_BKxSojsEXf" src="https://github.com/user-attachments/assets/4817cf09-a033-4aac-95f1-495469f1cccf" />
+<img width="264" alt="Cursor_SoJifU9zo3" src="https://github.com/user-attachments/assets/62c66159-2ec8-46a8-a4cc-5120d65b94d7" />
 
 
 
